@@ -104,5 +104,7 @@ Avatar del Aire
 
 ΩM
 
+Software *LIBRE*
+
 Unlicensed. Without any guarantee. 
 Original world presentation.
