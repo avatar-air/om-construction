@@ -103,4 +103,6 @@ Con esta referencia a la antigua alquimia y a este cuento, acabo esta construcci
 Avatar del Aire
 
 ΩM
- 
+
+Unlicensed. Without any guarantee. 
+Original world presentation.
