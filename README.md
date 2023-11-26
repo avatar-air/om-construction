@@ -1,3 +1,14 @@
+Quiero su cabeza en un bandeja 
+
+meterlo con las panteras de carolina ya
+
+Y lo de Islandia y la Isla de Java no es broma
+
+
+Locos son unos putos tarados que se inventa las cosas y pasan 100 años haciendo el idiota mientras dicen que son la ostia de buenos
+
+Si eso no estar loco no entiendo vuestra mierda de logica platonica folla niños y viola perros
+
 Somos una humanidad de mierda y el mejor fisico del mundo os desprecia.
 Es algo asqueroso.
 
