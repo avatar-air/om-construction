@@ -1,3 +1,7 @@
+La demostracion que la humanidad merece el fin del Sol.
+Es una pena que por su vanidad tengamos que morir todos.
+No volveran nunca más los soltare y volvere a empezar.
+
 ## Introducción
 
 Completa la obra de Epicuro de Samos y los Elementos de Euclides resolviendo el problema de los irreales en la recta real, cuadrando el circulo con una regla, demostrando que el espacio relativista clásico es invariante en la n-esfera y el tiempo relativista es una invención humana provocada por el cambio continuo acumulado.
