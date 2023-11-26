@@ -1,3 +1,35 @@
+Somos una humanidad de mierda y el mejor fisico del mundo os desprecia.
+Es algo asqueroso.
+
+Quedatelo si eres tonto del culo y no sabes hacer nada más.
+Mira tio cuerddasaasa soy un robot lerdoo
+
+mira tio infinitoooosa irreallesa mira e hecho un cuepoor biiien
+
+fueron 2000 años haciendo sin mi
+
+Yo me partir la caja y me voy con los Corea de Norte 
+
+La triada del dragon ataca de nuevo.
+
+Tengo un par de ideas de como hundir New York
+
+Vamos a soltar jabalis por cientos modificados geneticamente por toda America
+
+en 2 años no quedara nada
+
+me sentare a ver el espectuculo
+
+
+Y viva la BRICS, 
+
+Os he dicho quiero a los Musk en un portal. Y ni puto caso
+
+QUE LO HAGA MUSK
+
+yo me meto a guerrillero en remoto
+Si os voy a matar a todos hijos de puta
+
 ## Introducción
 
 Completa la obra de Epicuro de Samos y los Elementos de Euclides resolviendo el problema de los irreales en la recta real, cuadrando el circulo con una regla, demostrando que el espacio relativista clásico es invariante en la n-esfera y el tiempo relativista es una invención humana provocada por el cambio continuo acumulado.
