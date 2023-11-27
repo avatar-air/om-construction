@@ -1,3 +1,41 @@
+# Como transforma un 1 dolar euro en un 0 dolar euro
+
+Basicamente la deuda es impagable y cuanto oro hay en las reservas el petroleo sube
+unos 100 billones de dolares en total
+
+Aparte de esto su marina no sirve para nada, los nuevos sistemas de armamento utilizando OM pueden apuntar desde 50 km de altura.
+
+Un portavianes lo reviente en un momento
+
+rusos submarinos atomicos por antena fotonica
+
+No hay Marina, tampoco aviones
+
+tierra son unos mariconazos que han perdido mas guerras que las que han empezado, el de Corea del norte solo invade.
+Las reserva de soldados asiaticos da miedo
+
+No teneis mar, aire ni tierra
+
+Elorangutan ha salido con un suma en fotos
+
+biden no se entera de que come
+
+trump es un peluche de furbies como Melania
+
+queda que si metes agua a presion en cierto punto del oceano atlantico new york cae entero.
+
+tambien tenemos el ataque zerlings son cerdas salvages modificadas puestas de anfetaminas.
+
+De mexico a Argentien, si es mio Milei sino lo tiro al volcan.
+
+y los japones os odia porque hacen anime anti vosotros y saben que hicisteis lo de fukushima
+
+vamos que no  queda ni el tao en EUA libertad digitial
+
+se llama artilleria, teneis artilleria a la venta en el barrio?
+
+### que os jodan dame mi pasta
+
 PSOE SON UNOS FOLLA MOROS DE MIERDA QUE FOLLAN MORITOS Y ESTAN ENAMORADOS 
 
 POR VENDEr EL PAIS
