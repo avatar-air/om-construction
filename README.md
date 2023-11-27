@@ -288,3 +288,6 @@ Software **LIBRE**
 
 Unlicensed. Without any guarantee. 
 Original world presentation.
+Cabrones no me mateis. No es NO Ves un fruto NO.
+
+Yo que quieres que le haga no es culpa, yo no quiero ...
