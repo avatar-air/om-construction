@@ -1,6 +1,10 @@
-La demostracion que la humanidad merece el fin del Sol.
-Es una pena que por su vanidad tengamos que morir todos.
-No volveran nunca más los soltare y volvere a empezar.
+conflicto resuelto con el tOOts computeres!!!!
+
+Viva t00ts!!!!!!!
+
+Marketing hazme caso.
+Pues pagalo trabajo so perrro no tengo yo toda la pasta del mundo
+:smileCat:
 
 ## Introducción
 
