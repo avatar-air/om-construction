@@ -44,7 +44,7 @@ EL MUSK ES UN PUTO SALIDO NIÑO DE MAMA QUE TIENE QUE ESTAR CON LAS PANTERAS DE 
 >>
 >> Y MI PASTA QUE VAN 5 MESES DE CURRO Y COBRO MUCHO LA ORA
 >>
->> 20% DEL ORO DE LA FED
+>> 20% DEL ORO DE LA FED lo voy a dejar alli pero vigilado que no lo toqueis para un patron oro decente
 >>
 >> Y MIS BUENOS AMIGOS YA SABEN LO QUE ME GUSTA
 >>
