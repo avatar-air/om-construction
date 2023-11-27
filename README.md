@@ -1,6 +1,10 @@
 PSOE SON UNOS FOLLA MOROS DE MIERDA QUE FOLLAN MORITOS Y ESTAN ENAMORADOS 
 
-POR VENDEN EL PAIS
+POR VENDEr EL PAIS
+
+idiotas la fisica es fisica y estos son mates puras osea que o no o la habeis cagado pero mucho
+
+Sin mi no haceis nada de nada
 
 EL MUSK ES UN PUTO SALIDO NIÑO DE MAMA QUE TIENE QUE ESTAR CON LAS PANTERAS DE POR VIDA. Y VIVO. CUIDADO QUE NO SE MUERA.
 
